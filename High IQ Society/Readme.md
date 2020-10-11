@@ -1,0 +1,3 @@
+- Member of INternational High IQ Society
+- IQ of 125
+- Comes under the top 6% of IQ in the world
